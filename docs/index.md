@@ -83,6 +83,6 @@ __The Church of Jesus Christ of Latter-day Saints__, Vina del Mar, Chile
 - Problem Solving, Accuracy, Organization, Attention to Detail, Communication, Teamwork, Teaching and Training Experience
 <!-- ### Footer
 
-Last updated: May 2013 -->
+Last updated: Dec 2021 -->
 
 
